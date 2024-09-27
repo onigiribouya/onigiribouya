@@ -15,7 +15,7 @@ I’m looking to collaborate on AI projects, especially those involving data ana
 ## 📫 How to reach me ...
 Feel free to send me a message on GitHub if you have any questions or would like to discuss ideas!
 
-## 😄 Pronouns:
+## 🍙 Pronouns:
 I use he/him pronouns🍙✌️
 
 ## ⚡ Fun fact:
