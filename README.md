@@ -19,4 +19,4 @@ Feel free to send me a message on GitHub if you have any questions or would like
 I use he/him pronouns🍙✌️
 
 ## ⚡ Fun fact:
-Since around 2020, I’ve been wanting to take a cruise trip and have booked multiple times, but unfortunately, I haven’t been able to board! I hope to chill out on a ship in 2025!
+転職してはやくリモートで仕事したいぜ
