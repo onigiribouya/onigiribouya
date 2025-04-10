@@ -19,4 +19,4 @@ Feel free to send me a message on GitHub if you have any questions or would like
 I use he/him pronouns🍙✌️
 
 ## ⚡ Fun fact:
-転職してはやくリモートで仕事したいぜ
+この前転んでひざをパックリやったら、小学校の頃に刺したシャーペンの芯出てきた。なんか忘れてはいけないものな気がしてダイソーのビニールの小袋に入れてとってある。
