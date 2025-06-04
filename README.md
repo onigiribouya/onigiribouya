@@ -8,15 +8,3 @@ I’m interested in AI and its applications, as well as data science and machine
 
 ## 🌱 I’m currently learning ...
 I’m currently learning AI techniques and Python programming to deepen my understanding of the field.
-
-## 💞️ I’m looking to collaborate on ...
-I’m looking to collaborate on AI projects, especially those involving data analysis and machine learning algorithms.
-
-## 📫 How to reach me ...
-Feel free to send me a message on GitHub if you have any questions or would like to discuss ideas!
-
-## 🍙 Pronouns:
-I use he/him pronouns🍙✌️
-
-## ⚡ Fun fact:
-この前転んでひざをパックリやったら、小学校の頃に刺したシャーペンの芯出てきた。なんか忘れてはいけないものな気がしてダイソーのビニールの小袋に入れてとってある。
